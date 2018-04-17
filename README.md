@@ -1,2 +1,3 @@
 # HelloMars
 1st steps
+Trying not to stumble opon that Solar & Nuclear Powered Six Wheeler that is take pictures all over the place... 
